@@ -2,7 +2,8 @@
 
 <p align="center">
 
-<img width="549" height="306" alt="image" src="https://github.com/user-attachments/assets/e703f4db-629e-4bcd-8286-f9c08bb7c54b" />
+<img width="569" height="530" alt="output-onlinepngtools" src="https://github.com/user-attachments/assets/004e8858-915b-42f8-9766-967e6949c1c8" />
+
 
 
 
