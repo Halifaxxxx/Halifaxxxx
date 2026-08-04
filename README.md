@@ -8,6 +8,12 @@
 <img width="533" height="522" alt="image" src="https://github.com/user-attachments/assets/a26f08ad-6df0-4c80-9e39-e38f8e4fbbba" />
 </p>
 
+<p align="center">
+<img width="20" height="20" alt="d35af779" src="https://github.com/user-attachments/assets/4762c205-246b-4a10-a22a-f8137fabb7b8" />
+Heya! Call me Halifax/ Vinleii, either is fine
+<p align="center">
+<img width="20" height="20" alt="13144237" src="https://github.com/user-attachments/assets/912ad1a9-c22c-44ff-822a-06b60c00494d" />
+I'm not rlly that active in pt anymore, c+h freely
 
 <p align="center">  
 <img width="99" height="56" alt="biohazard-red" src="https://github.com/user-attachments/assets/293084a2-24a0-41a3-85d2-5c98aef0c7a1" />
