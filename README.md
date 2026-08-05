@@ -2,6 +2,9 @@
 <p align="center">
 <img width="585" height="29" alt="751c0dea" src="https://github.com/user-attachments/assets/6f03cc6b-916a-48ff-8a7c-0f62e9a49211" />
 
+
+
+  
 <p align="center">
 <img width="412" height="412" alt="image" src="https://github.com/user-attachments/assets/adb4a6b9-4665-4073-bf50-fcb58e768e85" />
 
@@ -13,6 +16,7 @@
 <p align="center">
 <img width="20" height="20" alt="d35af779" src="https://github.com/user-attachments/assets/4762c205-246b-4a10-a22a-f8137fabb7b8" />
 Heya! Call me Halifax/ Vinleii, either is fine
+  
 <p align="center">
 <img width="20" height="20" alt="13144237" src="https://github.com/user-attachments/assets/912ad1a9-c22c-44ff-822a-06b60c00494d" />
 I'm not rlly that active in pt anymore, c+h freely
