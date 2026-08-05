@@ -3,7 +3,8 @@
 <img width="585" height="29" alt="751c0dea" src="https://github.com/user-attachments/assets/6f03cc6b-916a-48ff-8a7c-0f62e9a49211" />
 
 <p align="center">
-<img width="533" height="522" alt="image" src="https://github.com/user-attachments/assets/a26f08ad-6df0-4c80-9e39-e38f8e4fbbba" />
+<img width="1000" height="1000" alt="Untitled61_20260805161646" src="https://github.com/user-attachments/assets/5656c540-d019-4375-a897-7b64cf4534bf" />
+
 </p>
 
 <p align="center">
